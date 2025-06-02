@@ -1,5 +1,6 @@
 ˚₊‧꒰ა *@emily0w0* INFO!! ໒꒱ ‧₊
 ╰─ - ̗̀♡ About me: I am banned from a Walmart 
+
 ✿ ⋆˙┇Name ᯓ Emily or Sam
 
 ✿ ⋆˙┇Gender ᯓ Woman  
